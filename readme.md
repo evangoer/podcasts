@@ -1,6 +1,6 @@
 # Podcasts
 
-podcasts that I am subscribed to:
+podcasts that Wil Moore is subscribed to
 
 ## Essential
 
